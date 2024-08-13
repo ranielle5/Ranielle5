@@ -8,4 +8,4 @@ meu nome e gabriel
 
 ### Você pode entrar em contato comigo :mailbox
 vc nao pode entrar em contato comigo
-![vai corinthians](https://tenor.com/pt-BR/view/corinthians-rodrigo-garro-gif-3467882418664779333)
+![vai corinthians](https://media1.tenor.com/m/MCBkr6dWLkUAAAAd/corinthians-rodrigo-garro.gif)
